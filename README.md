@@ -1,0 +1,2 @@
+# pendejo
+hecho para pendejos
